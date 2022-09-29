@@ -7,7 +7,7 @@ layout: post
 ---
 
 ### 田中央蕭平治
-> **陳明仁**
+> 陳明仁
 
 火車行到i-to a-ma-li-to-tiuh，ai-io田中央……
 
