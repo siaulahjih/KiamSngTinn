@@ -21,10 +21,11 @@ Siau Lah-jih（蕭平治）先生chit本著作ê內容實在是不止á豐沛，
 
 ## 計劃團隊
 * 作者、指導：Siau Lah-jih（蕭平治）
-* 共同發起人：Siau Lah-jih（蕭平治）、Chhòa It-bîn、Koa-ông Péng-hun、Ngô͘ Hê-bí、Tân Chu-hôa、Tǎn Sió-tâi
-* 總編輯：Chhòa It-bîn、Ngô͘ Hê-bí
-* 內容編輯：Chhòa It-bîn、Koa-ông Péng-hun、Ngô͘ Hê-bí、Tân Sió-tâi
-* 網站：Tân Chu-hôa
+* 共同發起人：Siau Lah-jih（蕭平治）、Chhòa It-bîn（蔡逸民）、Koa-ông Péng-hun、Ngô͘ Hê-bí、Tân Chu-hôa、Tân Sió-tâi
+* 校對編輯：Chhòa It-bîn（蔡逸民）、Koa-ông Péng-hun、Tân Sió-tâi
+* 網站程式：Ngô͘ Hê-bí
+* 網站維護：Tân Chu-hôa
+* 贊助單位：Táⁿ-káu Tâi-gí-bûn Chhiok-chìn Hia̍p-hōe（打狗台語文促進協會）
 
 ## 建議、聯絡
 Nā網站內容有任何問題a̍h是建議，請聯絡網站負責人 Tân Chu-hôa。
