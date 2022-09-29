@@ -1,4 +1,4 @@
-﻿---
+---
 title: 田中央蕭平治陳明仁
 author: Siau Lah-jih
 date: 1000-01-07
