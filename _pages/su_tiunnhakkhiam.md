@@ -1,5 +1,5 @@
 ﻿---
-title: 呂興昌教授序
+title: 張學謙教授序
 author: Siau Lah-jih
 date: 1000-01-10
 category: siaukai
