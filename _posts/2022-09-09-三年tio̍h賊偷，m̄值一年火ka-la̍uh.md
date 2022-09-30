@@ -16,9 +16,6 @@ toc: true
 >**Saⁿ nî tio̍h chha̍t-thau, m̄ ta̍t chi̍t nî hóe ka-la̍uh**
 
 
-
-
- 
 趁人無tī--leh，kâng（kā-lâng）提珠寶財物，號做賊；趁人無斟酌無注意，kā人sa物件，叫做偷，總是大賊小偷，lóng是kā人偷the̍h物件，lóng是見笑tāi。
 
 時機bái-bái，大賊小賊jú來jú chē，賊á狀元才，功夫jú來jú好jú大膽，為tio̍h boeh保護國民ê財產，幾年前有一位部長講大聲話，boeh tī四月日內hō͘賊á-kó͘消失kah清氣liu-liu，hō͘做鐵門ê業者koaiⁿ（關）門tāi（大）吉，結果siáⁿ款？Peh金目chiu看樓á厝ê門窗to̍h知。真正講tio̍h賊，心肝頭to̍h bē清彩。
@@ -31,7 +28,7 @@ Bē 清彩 ê tāi-chì iáu真chē，講tio̍h心ē驚，看tio̍h phi̍h-phi̍
 
 ### 【註解】
 
-|語詞|註解|
+|詞|解說|
 |M̄值|『不值得』。|
 |Ka-la̍uh|損失，phah-sńg，phah m̄見。|
 |趁人無tī--leh|聽候人無tī厝裡。|
