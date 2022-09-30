@@ -10,7 +10,7 @@ toc: true
 ---
 
 
-## 〈1-003〉
+## (1-003)
 # 一bó͘無人知，兩bó͘ sià四代；一ang一bó͘無人講，一ang兩bó͘ sià祖公
 >**Chi̍t bó͘ bô-lâng chai, nn̄g bó͘ sià sì-tāi;
 Chi̍t ang chi̍t bó͘ bô-lâng kóng, chi̍t ang nn̄g bó͘ sià chó͘-kong**
