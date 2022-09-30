@@ -10,8 +10,8 @@ toc: true
 ---
   
 
-# 九頓米糕無chiūⁿ算，一頓冷糜khioh起來khǹg**
->**Káu tǹg bí-ko bô chiūⁿ sǹg, chi̍t tǹg léng moâi khioh khí-lâi khǹg
+# 九頓米糕無chiūⁿ算，一頓冷糜khioh起來khǹg
+>**Káu tǹg bí-ko bô chiūⁿ sǹg, chi̍t tǹg léng moâi khioh khí-lâi khǹg**
 
  
 早前科學未發達，作穡人勤儉過日，生活艱難，三頓是番薯簽chham飯，配菜脯kah青菜湯，mā有人食番薯頭配番薯尾。Boeh食一碗清米飯，tio̍h ài等年節，á是tn̄g tio̍h人無爽快破病ê sî-chūn。斯當時，海口人nā講伊teh食米，定tio̍h無好tāi。
@@ -25,7 +25,7 @@ Kan-nā講ta-ke，咱做新婦--ê，有孝ta-ke-koaⁿ mā是kāng款ài像有�
 
 ### 【註解】
 
-|語詞|註解|
+|詞|解說|
 |無chiūⁿ算|『不算數』。|
 |Khioh khit來khǹg|『放在心上』。|
 |Chham|參。|
