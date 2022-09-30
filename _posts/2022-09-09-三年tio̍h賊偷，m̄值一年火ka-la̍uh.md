@@ -13,7 +13,7 @@ toc: true
 
 
 # 三年tio̍h賊偷，m̄值一年火ka-la̍uh
->**Saⁿ nî tio̍h chha̍t-thau, m̄ ta̍t chi̍t nî hóe ka-la̍uh
+>**Saⁿ nî tio̍h chha̍t-thau, m̄ ta̍t chi̍t nî hóe ka-la̍uh**
 
 
 
