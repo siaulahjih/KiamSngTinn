@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第1冊
-title: 1003. 一bó͘無人知，兩bó͘ sià四代；一ang一bó͘無人講，一ang兩bó͘ sià祖公
+title: 003. 一bó͘無人知，兩bó͘ sià四代；一ang一bó͘無人講，一ang兩bó͘ sià祖公
 author: Siau Lah-jih
 date: 2022-09-03
 category: chheh
