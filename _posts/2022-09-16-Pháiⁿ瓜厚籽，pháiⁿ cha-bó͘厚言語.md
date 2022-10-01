@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第1冊
-title: 1016. Pháiⁿ瓜厚籽，pháiⁿ cha-bó͘厚言語
+title: 016. Pháiⁿ瓜厚籽，pháiⁿ cha-bó͘厚言語
 author: Siau Lah-jih
 date: 2022-09-16
 category: chheh
