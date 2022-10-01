@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第1冊
-title: 1009. 三年tio̍h賊偷，m̄值一年火ka-la̍uh
+title: 009. 三年tio̍h賊偷，m̄值一年火ka-la̍uh
 author: Siau Lah-jih
 date: 2022-09-09
 category: chheh
@@ -11,7 +11,7 @@ toc: true
   
 
 
-
+## 〈009〉
 # 三年tio̍h賊偷，m̄值一年火ka-la̍uh
 >**Saⁿ nî tio̍h chha̍t-thau, m̄ ta̍t chi̍t nî hóe ka-la̍uh**
 
