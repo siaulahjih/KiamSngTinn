@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第1冊
-title: 1010. 九頓米糕無chiūⁿ算，一頓冷糜khioh起來khǹg
+title: 010. 九頓米糕無chiūⁿ算，一頓冷糜khioh起來khǹg
 author: Siau Lah-jih
 date: 2022-09-10
 category: chheh
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
   
-
+## 〈010〉
 # 九頓米糕無chiūⁿ算，一頓冷糜khioh起來khǹg
 >**Káu tǹg bí-ko bô chiūⁿ sǹg, chi̍t tǹg léng moâi khioh khí-lâi khǹg**
 
