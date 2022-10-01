@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第1冊
-title: 1013. Choh tio̍h pháiⁿ田望後冬，娶tio̍h pháiⁿ bó͘一世人
+title: 013. Choh tio̍h pháiⁿ田望後冬，娶tio̍h pháiⁿ bó͘一世人
 author: Siau Lah-jih
 date: 2022-09-13
 category: chheh
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
   
-
+## 〈013〉
 # Choh tio̍h pháiⁿ田望後冬，娶tio̍h pháiⁿ bó͘一世人
 >**Choh tio̍h pháiⁿ chhân bāng āu tang, chhōa tio̍h pháiⁿ bó͘ chi̍t sì lâng**
  
