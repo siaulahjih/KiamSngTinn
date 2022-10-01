@@ -2,7 +2,7 @@
 chapter: 鹹酸甜第1冊
 title: 018. Bái cha-bó͘愛照鏡，pháiⁿ命人愛看命
 author: Siau Lah-jih
-date: 2022-09-14
+date: 2022-09-18
 category: chheh
 show_chapter: 1
 layout: post
