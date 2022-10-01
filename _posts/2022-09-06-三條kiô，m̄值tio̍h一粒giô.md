@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第1冊
-title: 1006. 三條kiô，m̄值tio̍h一粒giô
+title: 006. 三條kiô，m̄值tio̍h一粒giô
 author: Siau Lah-jih
 date: 2022-09-06
 category: chheh
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
   
-
+## 〈006〉
 # 三條kiô，m̄值tio̍h一粒giô
 >**Saⁿ tiâu kiô, m̄ ta̍t-tio̍h chi̍t-lia̍p giô**
 
