@@ -32,4 +32,4 @@ toc: true
 |做菜kah|參leh做菜配飯。|
 |Chhiâⁿ kiáⁿ|『養育孩子』。|
 |Chhìn-chhái chhia-poa̍h-péng|隨便做，隨便換頭路。|
-|Kā人péng：Kah人反面。|
+|Kā人péng|Kah人反面。|
