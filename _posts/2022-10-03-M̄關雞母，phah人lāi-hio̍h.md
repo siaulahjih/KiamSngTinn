@@ -2,7 +2,7 @@
 chapter: 鹹酸甜第1冊
 title: 035. M̄關雞母，phah人lāi-hio̍h
 author: Siau Lah-jih
-date: 2022-10-05
+date: 2022-10-03
 category: chheh
 show_chapter: 1
 layout: post
