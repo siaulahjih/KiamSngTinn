@@ -18,6 +18,7 @@ Lāi-hio̍h to̍h是足愛咬雞á kiáⁿ hit種『老鷹』，有人叫做bā-
 Boeh如何改變chit款「M̄關雞母，phah人lāi-hio̍h。」ê做人處事態度，當然咱mā bē tàng théng-sēng咱ê gín-á，教咱ê gín-á壓霸thīn gín-á piⁿ，siāng要緊是教咱ê gín-á ē-hiáu「是m̄是，講道理。」千萬m̄-thang「是m̄是」都iáu未清楚--leh，to̍h boeh罵ka-kī（ê gín-á）hō͘別人看。
 
 ### 【註解】
+
 |詞|解說|
 |Chhōa|『帶』。 |
 |Tòa|『在』。|
