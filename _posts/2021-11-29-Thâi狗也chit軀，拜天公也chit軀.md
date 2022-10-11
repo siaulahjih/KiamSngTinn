@@ -26,4 +26,4 @@ toc: true
 |Chit軀|『這一套』。|
 |寂寞|Che̍k-bo̍k，m̄是siok-bo̍k。|
 |虔誠|Khiân-sêng。|
-|無妝無thāⁿ|無梳妝無打扮。|
+|無妝無tháⁿ|無梳妝無打扮。|
