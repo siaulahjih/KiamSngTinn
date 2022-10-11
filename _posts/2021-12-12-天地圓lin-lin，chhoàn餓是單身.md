@@ -10,7 +10,7 @@ toc: true
 ---
   
 ## 〈102〉
-# 
+# 天地圓lin-lin，chhoàn餓是單身
 >**Thiⁿ-tē îⁿ-lin-lin, chhoàn gō͘ sī toaⁿ-sin**
  
 一枝草一點露，天地創造萬物，lóng有賜伊求生ê本事，除非是天災地變，nā無，天地boeh餓死人是無hiah-nī簡單。餓死人bē，餓tó͘（肚）to̍h無thang掛保證，親像m̄做kut-la̍t食hit型ê無業遊民，á是boeh食m̄ tín動，kui日hō-lí-hō-sō，四界hàiⁿ-káu-bó-so ê pān-tōaⁿ仙，to̍h有可能有餓tó͘ ê經驗。
