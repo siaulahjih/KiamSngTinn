@@ -18,7 +18,7 @@ toc: true
 
 Éng-kòe老歲á人看少年--ê leh談戀愛，兩人糖甘蜜甜，khang-khòe m̄做，真正hō͘人gê目，to̍h án-ne講：「Kan-nā亂愛，khang-khòe m̄做，腹肚to̍h ē飽--à。」Che to̍h反應出咱台灣人勤儉戇做，bē-hiáu享受一點á浪漫ê人生。人生，食、穿、tòa，hak田園財產，猶原排第一，siāng親密siāng tio̍h牽手phah-piàⁿ ê ang-bó͘，都iáu m̄值tio̍h hâ包á錢，chit款ê夫妻不過是生活夫妻而已，ná是恩恩愛愛hit款愛情ang-bó͘--leh。
 
-Ang-bó͘是相欠債也好，前世修來ê也好，互相mài計較，雙腳行同齊，有好空--ê共同來享受，nā是tn̄g tio̍h難關，khah苦mā tio̍h相kēng扶持，人講勤儉khîⁿ家，ang-bó͘ kāng心，家和萬事成，恁tau ê kiáⁿ孫mā chiah ē幸福。
+Ang-bó͘是相欠債也好，前世修--來-ê也好，互相mài計較，雙腳行同齊，有好空--ê共同來享受，nā是tn̄g tio̍h難關，khah苦mā tio̍h相kēng扶持，人講勤儉khîⁿ家，ang-bó͘ kāng心，家和萬事成，恁tau ê kiáⁿ孫mā chiah ē幸福。
 
 「Ang親bó͘親，m̄值tio̍h hâ包á圓lin-lin。」Siāng好是m̄-thang khǹg-tiàm心肝內，án-ne ang-bó͘做夥khah bē傷感情。
 
