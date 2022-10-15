@@ -17,7 +17,7 @@ toc: true
 
 Chu̍t米圓，圓圓甜甜，khiū-khiū滑滑好落喉，hit種滋味無tè比，平常煮來食，suh-suh叫，ē tak舌；冬節nā到，大細漢lóng歡喜，歡喜boeh食冬節圓，「無冬節都boeh so圓，無講冬節kám m̄ so圓。」當然歡喜。
 
-Àn bó͘--ê，我來去sńg笑á leh kám thang？Ài to̍h去，nā-sái koh問，「無冬節都boeh so圓，無講冬節kám m̄ so圓」。其實都hèng-hèng，今á日是新正ê日子，無po̍ah ná有sêng過年，去--lah！去--lah！（氣--lah！氣--lah！）
+Àn bó͘--ê，我來去sńg笑á--leh kám thang？Ài to̍h去，nā-sái koh問，「無冬節都boeh so圓，無講冬節kám m̄ so圓」。其實都hèng-hèng，今á日是新正ê日子，無po̍ah ná有sêng過年，去--lah！去--lah！（氣--lah！氣--lah！）
 
 註：Chit句話ài用tī享受、娛樂、thit-thô方面ê tāi-chì，平常時都hèng-hèng ê tāi-chì，到kah該當ê時chūn，自然禮數當然，ná thang phah損。
 
