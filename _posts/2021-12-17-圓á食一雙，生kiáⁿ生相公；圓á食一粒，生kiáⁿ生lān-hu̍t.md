@@ -15,9 +15,9 @@ toc: true
  
 娶新娘是一層鬧熱、歡喜koh厚禮數ê大tāi-chì，講好話是一項真重要ê齣頭，好話講了nā讚，主人歡頭喜面，講ê人mā有紅包thang趁。
 
-講好話ùi新娘娶入門開始，請出轎、進新娘房、kōaⁿ kiáⁿ孫桶（尾後擔）、食酒婚桌…，lóng ài叫一位好命人講好話，chit句「圓á食一雙，生kiáⁿ生相公；圓á食一粒，生kiáⁿ生lān-hu̍t」ê好話，to̍h是tī新娘房內底，新娘kiáⁿ婿食紅圓講--ê：îⁿ-á chia̍h chi̍t-siang，seⁿ-kiáⁿ seⁿ siùⁿ-kang；îⁿ-á chia̍h chi̍t-lia̍p，seⁿ-kiáⁿ seⁿ lān-hu̍t。
+講好話ùi新娘娶入門開始，請出轎、進新娘房、kōaⁿ kiáⁿ孫桶（尾後擔）、食婚酒桌…，lóng ài叫一位好命人講好話，chit句「圓á食一雙，生kiáⁿ生相公；圓á食一粒，生kiáⁿ生lān-hu̍t」ê好話，to̍h是tī新娘房內底，新娘kiáⁿ婿食紅圓講--ê：îⁿ-á chia̍h chi̍t-siang，seⁿ-kiáⁿ seⁿ siùⁿ-kang；îⁿ-á chia̍h chi̍t-lia̍p，seⁿ-kiáⁿ seⁿ lān-hu̍t。
 
-Tī chia，「相公」ài念siùⁿ-kang，生相ê siùⁿ，公母ê kang，lān-hu̍t to̍h是lān核『睾丸』，生cha-po͘-kiáⁿ ê意思--lah，有khah重男輕女--hoⁿh。Siáⁿ-mih是好話，m̄是中狀元，to̍h是財、子、壽，講是俗氣，m̄-kú 人人愛ti̍h，kám m̄是？下面加寫幾句做參考：
+Tī chia，「相公」ài念siùⁿ-kang，生相ê siùⁿ，公母ê kang，lān-hu̍t to̍h是lān核『睾丸』，生cha-po͘-kiáⁿ ê意思--lah，有khah重男輕女--hoⁿh。Siáⁿ-mih是好話，m̄是中狀元，to̍h是財、子、壽，講是俗氣，m̄-kú人人愛ti̍h，kám m̄是？下面加寫幾句做參考：
 
 Kiáⁿ孫桶提koân-koân，生kiáⁿ生孫中狀元。
 Kiáⁿ孫桶kōaⁿ過hō͘-tēng，ang-bó͘合和萬事成。
