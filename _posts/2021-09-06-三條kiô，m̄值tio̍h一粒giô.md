@@ -19,7 +19,7 @@ Kiô，to̍h是茄，有人講紅皮菜，m̄是橋。Giô，nā是講咱兩ê�
 
 Tī笑貧無笑娼ê社會，gâu趁錢to̍h是hō͘人欣羨，koán-thāi-i 錢財是án-chóaⁿ趁來--ê，莫怪三ê cha-po͘人趁錢趁輸一ê cha-bó͘人，to̍h hō͘人keng-thé講「三條茄，m̄值tio̍h一粒giô」。
 
-Che是無合時勢ê俗語，現代人職業無貴賤，流落風塵趁食有伊ê不得已，咱m̄-thang chhìn-chhái用chit句「三條茄，m̄值tio̍h一粒giô」俗語來kā人phé-siùⁿ。
+Che是無合時勢ê俗語，現代人職業無貴賤，流落風塵趁食有伊ê不得已，咱m̄-thang chhìn-chhái用chit句「三條kiô，m̄值tio̍h一粒giô」俗語來kā人phé-siùⁿ。
 
 
 ### 【註解】
