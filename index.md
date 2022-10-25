@@ -2,9 +2,10 @@
 layout: home
 ---
 
+## 網站紹介
+
 ![](./too5/thauiah.jpg){:h="50%" w="50%"}
 
-## 網站紹介
 Chit ê網站是為tio̍h **Siau Lah-jih（蕭平治）**先生ê著作**《Tâi-oân Sio̍k-gí Kiâm-sng-tiⁿ (台灣俗語鹹酸甜)》**來設--ê。
 
 Siau Lah-jih（蕭平治）先生chit本著作ê內容實在是不止á豐沛，mā是台灣人寶貴ê語言kap文化資產。伊一直真khòa心，向望chia ê智識有機會thang ka thn̂g--lo̍h-去。所致，伊決定將chit本冊，完整公開tī網路頂koân。
