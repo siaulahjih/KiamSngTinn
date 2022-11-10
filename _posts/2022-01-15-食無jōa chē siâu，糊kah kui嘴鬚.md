@@ -21,7 +21,7 @@ toc: true
 
 有人愛貪小虛名，有一sut-á好，人tio̍h ka o-ló十分，得tio̍h十分ê成績，人tio̍h kā伊pòng kah kui百點，聽tī耳空內，爽oaiⁿ-oaiⁿ。
  
-愛貪虛名是人ê天性，對別人無敗害，nā是貪財，人尻川後m̄知boeh án-chóaⁿ kā你phì-siùⁿ消遣，講你垃圾鬼，一sián五釐to boeh ti̍h，nā是貪色，人nā看bē慣勢，講你性騷擾，bí-ko-siûⁿ。免ka告訴，kan-nā公開你ê祕密，he to̍h真正「食無jōa chē siâu，糊kah kui嘴鬚。」實在真pháiⁿ聽，留一世人臭名。
+愛貪虛名是人ê天性，對別人無敗害，nā是貪財，人尻川後m̄知boeh án-chóaⁿ kā你phì-siùⁿ消遣，講你垃圾鬼，一sián五釐都boeh ti̍h，nā是貪色，人nā看bē慣勢，講你性騷擾，bí-ko-siûⁿ。免ka告訴，kan-nā公開你ê祕密，he to̍h真正「食無jōa chē siâu，糊kah kui嘴鬚。」實在真pháiⁿ聽，留一世人臭名。
 
 「食無jōa chē siâu，糊kah kui嘴鬚。」有khah pháiⁿ聽欠文雅，想boeh ka改做「食無jōa chē物，糊kah kui嘴鬚。」M̄-kú想想--leh，語言本chiâⁿ tio̍h無分粗魯幼秀，只有講話ê時chūn chiah有雅俗ê分別，對hit種siáu貪ê行為，boeh用雅氣ê話boeh ná有法度消遣。
 
@@ -41,6 +41,6 @@ toc: true
 |對別人無敗害|『對別人沒有壞處』。|
 |尻川後|背後。|
 |垃圾鬼|『骯髒鬼』，無人格。|
-|一sián五釐to boeh ti̍h|『一分五釐都要』。|
+|一sián五釐都boeh ti̍h|『一分五釐都要』。|
 |性騷擾|Sèng-so-jiáu，bí-ko-siûⁿ。|
 |食無jōa chē siâu|食無jōa chē物件，siâu是『精液』，食無jōa chē siâu，是粗魯話。|
