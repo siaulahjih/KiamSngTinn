@@ -10,7 +10,7 @@ toc: true
 ---
   
 ## 〈029〉
-# khiā厝tio̍h好厝邊，作田tio̍h好田邊
+# Khiā厝tio̍h好厝邊，作田tio̍h好田邊
 >**Khiā chhù tio̍h hó chhù-piⁿ, choh-chhân tio̍h hó chhân piⁿ**
  
 Khiā厝tio̍h好厝邊：
